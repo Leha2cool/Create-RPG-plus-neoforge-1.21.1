@@ -1,2 +1,1 @@
-[Discord leha7cool](https://discord.gg/PrjJPYtQZ
-)
+[Discord leha7cool](https://discord.gg/PrjJPYtQZ)
